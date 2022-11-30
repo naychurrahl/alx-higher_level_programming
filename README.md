@@ -1,1 +1,1 @@
-Beware the heir of Slytgerine
+Beware the heir of Slytherine
